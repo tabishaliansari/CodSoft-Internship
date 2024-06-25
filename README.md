@@ -15,8 +15,8 @@ I would like to extend my gratitude to CodSoft for providing me with this opport
 ## Contact
 For any questions or further information, please feel free to reach out.
 
-**Email**: [tabish.ansari004@yahoo.com]  
-**LinkedIn**: [https://www.linkedin.com/in/tabishaliansari/]
+**Email**: tabish.ansari004@yahoo.com  
+**LinkedIn**: https://www.linkedin.com/in/tabishaliansari/
 
 ---
 
